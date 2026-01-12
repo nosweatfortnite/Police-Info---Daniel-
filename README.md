@@ -9,11 +9,11 @@ Roleplay name: **Daniel West**
 
 Age: **32**
 
-occupation: **AFO-Metropolitan-operations.19**
+occupation: **MET Police Officer**
 
 Side: **frontline policing trainer**
-
-Rank: **Probationary Constable**
+frontline policing do it hello Hello how can I help you doesn't my aunt Daniel Oh my gosh can I tell you something funny Megan I have actually got a fake name
+Rank: **Inspector - Bronze command**
 
 contact: **danielwestenquiries@outlook.com**
 
